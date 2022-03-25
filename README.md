@@ -1,2 +1,0 @@
-# fucknow
-nskke
